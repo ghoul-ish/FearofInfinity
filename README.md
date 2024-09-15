@@ -1,10 +1,10 @@
-HI ! WELC0ME TO MY GITHUB ★ ! !
-FEEL FREE TO F0LL0W ME ! <3
+. >> ` ` WHAT MYTHS MUST MAKE US MAN!? ` ` << .
 
-![](https://github.com/user-attachments/assets/9da24d29-5444-4d19-a401-dca02e49430a)
+Hi welcome to my github!!!!!!
+Heres some interests of mine:
+Will Wood, Beetlejuice, Ranboo/Genloss, Fnaf, Regretevator/Pressure, Deltarune, Wof and WC, Divergent (Movie n Book), Md and etc! That's for now as there is so many more!
+If you see this you have found me on pt or twt! Good job!
 
-> > PLEASE READ DNI ! ! .
+![](https://github.com/user-attachments/assets/3d6fc2b6-0e4b-4d88-8a4b-82d21f3b9be7)
 
-![](https://github.com/user-attachments/assets/c881b9d0-54fc-4505-925f-8064b2c772c7)
-
-. : SEE YOU S00N !
+! <3
