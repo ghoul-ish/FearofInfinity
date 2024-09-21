@@ -1,4 +1,4 @@
-. >> " WHAT MYTHS MUST MAKE US MAN!? " << .
+. >> " Your my mascara bleedin' girl! " << .
 
 Hi welcome to my github!!!!!!
 Heres some interests of mine:
